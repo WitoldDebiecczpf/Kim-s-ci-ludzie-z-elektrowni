@@ -5,3 +5,4 @@ Ci ludzie co udało im się wyprodukować przekrent jakim jest kopalnie surowcó
 Dlatego ja opowiem o tej energii wolnej punktu zerowego. 
 Te afery sportu i kopanie łopatom rowów wymyślili ludzie z autyzmem i brak czasu na spanie. 
 Lewy jest Autyzm. To autyzm karze palić papierosy i uprawiać sport i kopać kilofem za surowcami niż od AI z energii elektrycznej jak w Star treck. 
+To że człowiek musi uprawiać sport i być maszyną wymyślili to autystycy z Stadionów i sejmu i senatu i euro parlamentu. 
