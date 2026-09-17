@@ -7,3 +7,4 @@ Te afery sportu i kopanie łopatom rowów wymyślili ludzie z autyzmem i brak cz
 Lewy jest Autyzm. To autyzm karze palić papierosy i uprawiać sport i kopać kilofem za surowcami niż od AI z energii elektrycznej jak w Star treck. 
 To że człowiek musi uprawiać sport i być maszyną wymyślili to autystycy z Stadionów i sejmu i senatu i euro parlamentu. 
 Ci ludzie od sportu i post wysiłku to są złodzieje dziejów i złodzieje czasów i kłamania że nie da się całkowicie elektrycznie produkować energii elektrycznej ci ze stadionów tylko chwalą się że dobrze jest zapierdalać przy kieracie i palić ropę. Bo cierpienie uszlachetnia dusze człowieka jak mówią religijni żydzi na gojów. 
+Ci ludzie z stadionu są warci tylko 1 gr. 
