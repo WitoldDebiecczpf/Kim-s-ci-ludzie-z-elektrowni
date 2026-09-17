@@ -8,3 +8,4 @@ Lewy jest Autyzm. To autyzm karze palić papierosy i uprawiać sport i kopać ki
 To że człowiek musi uprawiać sport i być maszyną wymyślili to autystycy z Stadionów i sejmu i senatu i euro parlamentu. 
 Ci ludzie od sportu i post wysiłku to są złodzieje dziejów i złodzieje czasów i kłamania że nie da się całkowicie elektrycznie produkować energii elektrycznej ci ze stadionów tylko chwalą się że dobrze jest zapierdalać przy kieracie i palić ropę. Bo cierpienie uszlachetnia dusze człowieka jak mówią religijni żydzi na gojów. 
 Ci ludzie z stadionu są warci tylko 1 gr. 
+Ci ze stadionu to kolejni złodzieje z Izraela. 
