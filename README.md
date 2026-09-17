@@ -3,3 +3,4 @@ Ci ludzie z elektrowni co kłamali że nie można nic zrobić że trzeba inwesto
 Ci ludzie co handlują energią mają wiedzę nie z laboratoriów badawczych tylko z zegarków z AI asystentem chat GPT. Oni się nikogo mądrego nie pytali o technologię. 
 Ci ludzie co udało im się wyprodukować przekrent jakim jest kopalnie surowców i sport to nie wiedzą że wolna energia jest to urządzenie bez chemii i paliw czysto elektrycznie produkuje się energię elektryczną. Ci co inwestują w chemię i paliwa kopalne i energię z otoczenia z przyrody nie wiedzą o wolnej energii czystej elektrycznej energii elektrycznej tylko palą fajki i coś biorą do ust i zachowują się jak koło. 
 Dlatego ja opowiem o tej energii wolnej punktu zerowego. 
+Te afery sportu i kopanie łopatom rowów wymyślili ludzie z autyzmem i brak czasu na spanie. 
