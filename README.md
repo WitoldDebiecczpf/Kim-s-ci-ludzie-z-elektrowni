@@ -4,3 +4,4 @@ Ci ludzie co handlują energią mają wiedzę nie z laboratoriów badawczych tyl
 Ci ludzie co udało im się wyprodukować przekrent jakim jest kopalnie surowców i sport to nie wiedzą że wolna energia jest to urządzenie bez chemii i paliw czysto elektrycznie produkuje się energię elektryczną. Ci co inwestują w chemię i paliwa kopalne i energię z otoczenia z przyrody nie wiedzą o wolnej energii czystej elektrycznej energii elektrycznej tylko palą fajki i coś biorą do ust i zachowują się jak koło. 
 Dlatego ja opowiem o tej energii wolnej punktu zerowego. 
 Te afery sportu i kopanie łopatom rowów wymyślili ludzie z autyzmem i brak czasu na spanie. 
+Lewy jest Autyzm. To autyzm karze palić papierosy i uprawiać sport i kopać kilofem za surowcami niż od AI z energii elektrycznej jak w Star treck. 
